@@ -7,3 +7,5 @@
   ### você pode entrar em contato comigo:
 
   milenaduarte1235@gmail.com
+
+![](https://media1.tenor.com/m/51foyuSqh0QAAAAd/cooking-cook.gif)
